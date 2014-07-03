@@ -13,5 +13,4 @@ That does not go to say that I will not be judged by my words or even criticized
 
 That being said, please feel free to comment however you wish whether it be through email, phone, postal mail, twitter, facebook, walking down the street, or complete social outcast. My purpose is not to ignite controversy or even to social disruption, but to simply expand in whichever way my fingers typing on the keyboard allow.
 
-Thanks,
-Alexander Lewis Frankel
+Thank you for understanding. Thank you for being you.
